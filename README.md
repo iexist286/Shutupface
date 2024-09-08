@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @iexist286
+- 👋 Hi, I’m @joryma
 - 👀 I’m interested in video games.
 - 🌱 I'm not currently learning anything coding related.
 - 💞️ I’m looking to collaborate on nothing at the moment. (xD)
